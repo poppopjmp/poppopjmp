@@ -1,5 +1,5 @@
 ### Hi there 👋
-📫 How to reach me: van1sh@van1shland.io \ Van1sh@protonmail.com
+📫 How to reach me: van1sh@van1shland.io \ van1sh@securitybsides.it
 Twitter @Van1sh_BsidesIT
 #BSidesRoma and #BSidesMilano Organizer
 https://www.van1shland.io
